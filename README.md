@@ -1,0 +1,2 @@
+# Tugas12_PCD_MochCahyaGumilar-20220040116-_TI22B-
+Tugas12_PCD_MochCahyaGumilar-20220040116-_TI22B 
